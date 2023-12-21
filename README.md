@@ -1,3 +1,1 @@
-# Hi ~ 😏
-
-stay cool 😎
+# Greetings ~ 😎
